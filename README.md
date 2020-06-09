@@ -1,1 +1,1 @@
-IIIT Pune | IIITian network website
+IIITP IIITian Network Website
